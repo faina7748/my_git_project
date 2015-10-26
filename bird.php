@@ -1,1 +1,1 @@
-Burung kakak tua
+Burung kakak tua.. tinggal dijendela..
