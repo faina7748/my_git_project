@@ -1,1 +1,1 @@
-Burung kakak tua.. tinggal dijendela..
+Burung kakak tua.. tinggal dijendela.. nenek sudah tua..
