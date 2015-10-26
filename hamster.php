@@ -1,1 +1,1 @@
-Lilie is my hamster!
+Lilie is my cutie hamster!
